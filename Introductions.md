@@ -15,7 +15,7 @@ Consumption of goods, political Twitter, Major sports cities/teams factors
 
 
 5) Do you have a github account?
-Yes
+Yes, jjkolonko
 
 
 6) What are your goals after graduation?
